@@ -1,1 +1,0 @@
-# pashayevfarid.github.io
